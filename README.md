@@ -1,1 +1,1 @@
-# Myeasy 🌐💻
+# Myeasy
